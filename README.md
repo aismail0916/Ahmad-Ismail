@@ -9,4 +9,6 @@
 About me: You can ask me about my life and I am a disciple of my Lord Jesus Christ. I love to read and get coffee with friends, I plan to take culinary courses to improve my cooking skills for myself and future family. My Pronouns are He/Him. I spend time during the week serving my local commmunity and working out, I especially love spin classes
  
  How to reach me: 732-404-7447 or email: aismail0916@gmail.com
+
+ You can view my Resume here 
  
